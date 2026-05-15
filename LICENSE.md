@@ -1,4 +1,4 @@
-# 
+# AI-powered dexscreener sniper bot | priority-gas-auctions + auto-sell is the best dexscreener sniper bot, featuring priority-gas-auctions and auto-sell. Fast, smart, and optimized
 
 
 
